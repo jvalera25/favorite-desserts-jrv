@@ -5,4 +5,4 @@ Lab activity logging fav desserts
 - Natalie, homemade lemon meringue pie!
 - Justine, **fudgy chocolate brownies (NOT cakey!!!)**
 - Ruby loves **peanut butter flavored treats** ✅
-- Otto love **natural treats**
+- Otto loves **natural, freeze-dried treats**
